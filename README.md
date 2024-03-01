@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+I'm making this profile README so I will remember to come back and work on it (eventually).
+
 <!--
 **WessellUrdata/WessellUrdata** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
