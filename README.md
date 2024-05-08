@@ -1,4 +1,4 @@
-# Hi there!
+# Hi there! ☺️💬
 
 ☺️🫂 Thanks for checking out my profile!
 
