@@ -4,6 +4,7 @@
 
 💻✨ Stuff I'm working at the moment:
 
-  - 🧑‍💻🐒 Being an amateur code monkey for [PolyU English Learning Centre](https://www.polyu.edu.hk/elc/)
+  - Work.
+  - Tidying up my life after graduating before working on new projects
 
 🌐🖥️ Come check out [my ☺️site](https://wesl.cc)!
