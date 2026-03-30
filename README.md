@@ -5,6 +5,6 @@
 💻✨ Stuff I'm working at the moment:
 
   - Work.
-  - Tidying up my life after graduating before working on new projects
+  - Decluttering life before working on new projects
 
-🌐🖥️ Come check out [my ☺️site](https://wesl.cc)!
+🌐🖥️ Come check out [my ☺️site](https://wesl.cc)! Maybe you'd enjoy [☺️saver](https://wesl.cc/screensaver) or [☺️ Fountain](https://wesl.cc/fountain)?
